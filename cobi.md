@@ -1,2 +1,1 @@
-
-![](Media/Cobi Tadros Headshot.JPEG)
+![](Media/Cobi Tadros Headshot.jpeg)
