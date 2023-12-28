@@ -1,1 +1,1 @@
-![](Media/Azure.png)
+![](./Media/Azure.png)
