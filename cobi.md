@@ -1,1 +1,1 @@
-![](azure.png)
+![](Media/Cobi Tadros Headshot.JPEG)
