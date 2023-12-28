@@ -1,1 +1,1 @@
-![](Media/Cobi Tadros Headshot.JPEG)
+![](Media/81254478-79C0-49D5-9CB9-776CE289D249.jpeg)
